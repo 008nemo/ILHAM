@@ -1,3 +1,5 @@
+[to linkedin] (https://www.linkedin.com/posts/namik-yer-7a1915b5_e%C4%9Fitim-sisteminin-yeniden-dizayn%C4%B1-i%C3%A7in-bir-activity-7398473039538962432-BgWq?utm_source=share&utm_medium=member_desktop&rcm=ACoAABiEsykBF3CsC-nhP3KS8tcQeHhDjpWKtGw)
+
 Project ILHAM – Comprehensive Introduction & Roadmap v1.0
 Introduction
 
